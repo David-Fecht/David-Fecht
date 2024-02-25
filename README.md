@@ -1,5 +1,5 @@
 ### Welocme to my profile! ###
 
-##Getting to know me:
+##Getting to know me##:
 
 
